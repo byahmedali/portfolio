@@ -2,7 +2,7 @@
 
 AI | Data Science Practitioner  
 Abbottabad, KPK  
-Email: [byahmedali@gmail.com](mailto:byahmedali@gmail.com)  
+Email: byahmedali@gmail.com
 Phone: +92 332 5710673
 
 ---
